@@ -13,6 +13,8 @@
 
 > ⚠️ **Important note:** HIA is a single-terminal airport. You do NOT need to re-clear security between concourses. Once airside, all shops are accessible to you regardless of which gate you arrive at or depart from. Head directly to Concourse C/B for the best options.
 
+> 🕐 **Arrival time note: You arrive at ~1 AM (Doha local time).** The good news: **ALL key restaurants and food options listed in this guide are open 24 hours a day, 7 days a week.** You will have full access to every option listed below regardless of your late-night arrival. HIA is a 24/7 international hub — nothing closes overnight.
+
 ---
 
 ## 🗂️ ALL STORES — COMPLETE DIRECTORY
@@ -33,6 +35,7 @@ Asian-inspired chain. Menu explicitly includes **rice bowls, noodle dishes, curr
 - ✅ Kids menu
 - ✅ Fast (15 min guaranteed)
 - ✅ Concourse C (central)
+- 🕐 Open: **24/7**
 
 ---
 
@@ -43,6 +46,7 @@ Japanese kaiten (conveyor belt) restaurant. Menu includes **donburi rice bowls, 
 - ✅ Ramen/noodles
 - ✅ Takeaway available
 - ⚠️ Concourse A — slightly further, but worth it
+- 🕐 Open: **24/7**
 
 ---
 
@@ -51,6 +55,7 @@ Asian cuisine celebration. Menu includes **ramen, noodles, and sushi**. Very sui
 - ✅ Asian/Chinese food
 - ✅ Noodles, ramen, rice
 - ⚠️ Concourse A — same area as YO! Sushi, visit both together
+- 🕐 Open: **24/7**
 
 ---
 
@@ -60,6 +65,7 @@ A large food court with Indian, Asian, Middle Eastern, and international options
 - ✅ Biryani/rice dishes likely available
 - ✅ Affordable
 - ⚠️ Concourse A — go here with YO! Sushi and Yum Cha
+- 🕐 Open: **24/7**
 
 ---
 
@@ -68,6 +74,7 @@ A large food court with Indian, Asian, Middle Eastern, and international options
 - ✅ Global cuisine including Asian options
 - ✅ Very fast (10-minute guarantee)
 - ✅ Family-friendly atmosphere
+- 🕐 Open: **24/7**
 
 ---
 
@@ -80,6 +87,7 @@ Indian cuisine with regional specialities. Indian food is excellent for toddlers
 - ✅ Rice-based dishes (biryani)
 - ✅ Soft, mashable food
 - ⚠️ Spice level — ask for mild
+- 🕐 Open: **24/7**
 
 ---
 
@@ -88,6 +96,7 @@ Indian cuisine — curries, biryani, kebabs from a clay oven. Good option for so
 - ✅ Biryani/rice dishes
 - ✅ Concourse C (convenient)
 - ⚠️ Ask for a plain/mild version
+- 🕐 Open: **24/7**
 
 ---
 
@@ -96,6 +105,7 @@ Qatari eatery. Menu includes **"Balalit noodles with saffron"** and **biryani** 
 - ✅ Noodles (Balalit)
 - ✅ Biryani/rice
 - ✅ Concourse C (convenient)
+- 🕐 Open: **24/7**
 
 ---
 
@@ -104,6 +114,7 @@ Middle Eastern/Mediterranean. Homestyle dishes served fast. Likely to have **sof
 - ✅ Soft bread
 - ✅ Possible soups/rice
 - ✅ Concourse B
+- 🕐 Open: **24/7**
 
 ---
 
@@ -112,6 +123,7 @@ International menu, explicitly mentions a **children's menu** ("inspired by fair
 - ✅ Children's menu
 - ✅ Soup
 - ✅ Concourse C (convenient)
+- 🕐 Open: **24/7**
 
 ---
 
@@ -120,6 +132,7 @@ Modern Indian street food. Menu includes **creamy curries, naan (soft bread), bu
 - ✅ Soft naan bread
 - ✅ Mild curries
 - ✅ Concourse C
+- 🕐 Open: **24/7**
 
 ---
 
@@ -128,6 +141,7 @@ Qatari cuisine. Menu includes **Madrouba** (a Qatari rice/chicken porridge — v
 - ✅✅ **Madrouba = rice porridge, ideal for 18 months**
 - ✅ Soft flatbread (Chapati)
 - ✅ Concourse A
+- 🕐 Open: **24/7**
 
 ---
 
@@ -136,14 +150,15 @@ Qatar Duty Free grab-and-go. Freshly made salads, wraps, sandwiches, **pastries*
 - ✅ Soft pastries and bread
 - ✅ Two locations (B and C)
 - ✅ Quick grab-and-go
+- 🕐 Open: **24/7**
 
 ---
 
 **🥐 La Brioche Dorée** | **Concourse A**
-French bakery, open 24/7. **Fresh pastries, croissants, baguettes, buttery bread**. Excellent for soft bread options for your toddler. Very quick stop.
+French bakery. **Fresh pastries, croissants, baguettes, buttery bread**. Excellent for soft bread options for your toddler. Very quick stop.
 - ✅ Soft bread and pastries
-- ✅ Open 24/7
 - ✅ Concourse A
+- 🕐 Open: **24/7** *(confirmed on HIA official website)*
 
 ---
 
@@ -151,6 +166,7 @@ French bakery, open 24/7. **Fresh pastries, croissants, baguettes, buttery bread
 Turkish bakery. Freshly baked **simit (sesame bread rings), boreks, rolls**. Soft bread items great for toddlers.
 - ✅ Soft bread, rolls
 - ✅ Concourse C (convenient)
+- 🕐 Open: **24/7**
 
 ---
 
@@ -255,5 +271,7 @@ Given your concourse situation (arriving likely D/E, departing likely B/C), here
 3. 🥉 **YO! Sushi (Concourse A)** — Japanese donburi, ramen, soft options
 4. 🏅 **Food Market / Food Court (Concourse A)** — Best variety, Asian rice/noodle stalls
 5. 🏅 **Yum Cha (Concourse A)** — Asian noodles and rice dishes
+
+> 🕐 **Opening hours reminder:** All 5 top picks — and every restaurant in Priority 1 & 2 — are open **24/7**. Your ~1 AM arrival is no problem at all.
 
 Safe travels and bon appétit to your little one! 🍚👶✈️
